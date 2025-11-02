@@ -47,4 +47,14 @@ Balanced nutrition and moderate sun exposure are the best preventive measures.
 **Project name:** BioVitD_Study  
 **Field:** Biochemistry / Biology  
 **Institution:** (Add your university name)  
-**Date:** (Add project date)
+**Date:** (2_11_2025)
+university Saad Dahlb  blida 01
+faculty of nature science and life 
+Department of food science 
+Alimentation ana nutrition and Pathology 
+Name and surname 
+Ghessil Aya Sahar 
+Ghalem Rania 
+bensafi Saoussan
+Sebrani Rim 
+Hebal Ritaj 
